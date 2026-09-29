@@ -61,4 +61,4 @@ YOUR-GITHUB-REPOSITORY-LINK
 
 📸 Instagram: @naman_atrahe
 
-💼 LinkedIn: YOUR-LINKEDIN-LINK
+💼 LinkedIn: https://www.linkedin.com/in/naman-atrahe-0018093a6?utm_source=share_via&utm_content=profile&utm_medium=member_android
