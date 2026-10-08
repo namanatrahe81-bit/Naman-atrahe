@@ -1,4 +1,4 @@
-# Hi 👋, I'm Naman Atre
+# Hi 👋, I'm Naman Atrahe
 
 ### BSc Computer Science Student | Web Development Learner
 
